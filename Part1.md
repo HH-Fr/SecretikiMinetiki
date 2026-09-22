@@ -2,6 +2,6 @@
 
 Неплохо, неплохо, а что насчёт этого??
 
-<img width="480" height="640" alt="Без названия68_20260915211921" src="https://github.com/user-attachments/assets/96fe9fe6-40aa-46cd-9585-014bc0417186" />
+<img width="480" height="640" alt="Без названия68_20260922214458" src="https://github.com/user-attachments/assets/d8c9ea84-6fbf-4123-b0bd-329139eb1536" />
 
 (Для перехода на новый этап, ответ должен быть отправлен мне в личку)
